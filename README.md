@@ -1,0 +1,2 @@
+Ngoài ra, nếu bố mẹ có cấu trúc xương cột sống vùng lưng yếu thì con cũng rất dễ bị mắc bệnh; những người béo phì, thừa cân cũng có nguy cơ bị đau lưng cao hơn người bình thường.
+https://www.facebook.com/chuabenhkhoptambinh/photos/a.347166519152328/414752529060393/?type=3&__xts__%5B0%5D=68.ARBrnGykk91ep4-bHfkgpP_UPxu-kGfGJA4bRKtZSDK1xUKmzbw8C_z1umQ-aNxiah7ep8oQCb4OS5VJj9Hxpkp9r3fQgv169PkeWTffmGt4Sv3R0mcFKRxLXlvhUNPiblaW5nhBuUV8TxThjcSTs0IoiRcRx3RTwbBiu_wOYfENkjrM-sbzE-_K32d4NfoOi4cQbD81Bh4or4xEnXU6p8SS&__tn__=-R
